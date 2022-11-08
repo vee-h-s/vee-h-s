@@ -1,0 +1,7 @@
+-  vhs
+-  lua mf
+-  2 years lua experience
+-  reverse engineering paid rblx scripts
+-  broke ass mf
+-  hmu on discord
+-  (don't bother asking for it, not giving it to people currently)
